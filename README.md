@@ -10,7 +10,7 @@
 - Motion graphics y edición audiovisual
 - Estrategias para redes (Instagram, LinkedIn, GitHub)
 
-🌐 [Sitio web](https://elmaizal.coop) | 📸 [Instagram](https://instagram.com/elmaizal) | 💼 [LinkedIn](https://linkedin.com/company/elmaizal)
+🌐 [Sitio web](https://elmaizal.coop) | 📸 [Instagram](https://instagram.com/elmaizalcoop) | 💼 [LinkedIn](https://linkedin.com/company/elmaizal)
 
 ---
 
